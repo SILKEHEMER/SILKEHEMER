@@ -3,7 +3,6 @@
 - 🌱 At the moment I like to learn about all the natural ways to keep myself fit and healthy.
 - 💞️ I would like to work with people who are hardworking, close to nature and also like to help other people.
 - 📫 You are welcome to contact me by email.
-- 😄 Mobile phone number or by post.
 - ⚡ I love farm life, the mountains and nature. 
 
 Translated with DeepL.com (free version)
